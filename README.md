@@ -1,0 +1,2 @@
+# Education
+Work and serve students from every age group, pre-school to graduate school and beyond. Private Elementary, Junior High, and High Schools, Scholarships and Financial Aid Services, School Reform and Experimental Education, Different Support for Students, Teachers, and Parents, Work for inner-city students, first-generation college students, or school supplies for impoverished areas etc.
